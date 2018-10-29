@@ -1,0 +1,1 @@
+https://github.com/learn-co-students/fast-track-081118-code-challenge-badges-and-schedules-1534100590.git
